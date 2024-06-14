@@ -1,5 +1,5 @@
-## Oii PRETINHAS 🤎
-Thay Pinheiro   
+## Oii PRETINHAS 🤎  
+Pinheiro   
 
 Perfil apenas para girls...   
 
